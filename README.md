@@ -1,1 +1,0 @@
-# minatomuh.github.io
